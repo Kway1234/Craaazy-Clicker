@@ -189,3 +189,5 @@ Dieses Projekt steht unter der **MIT-Lizenz** – mach damit, was du willst, abe
 <p align="center">
   Gemacht mit 🌀 und viel zu vielen Klicks.
 </p>
+
+Keine ahnung wer das geschrieben hat hat nichts mit dem repo zutun
