@@ -17,3 +17,5 @@
 
 mehr kommt noch bald
 und bitte kein code klauen oder virus machen oder sowas
+
+# ABER LASS SAGEN WIR MACHEN IN GD SCRIPT GE
