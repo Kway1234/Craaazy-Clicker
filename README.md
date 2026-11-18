@@ -2,8 +2,8 @@
 
 ## Übersicht
 
-  Was ist CRAAAZY CLICKER™®©?
-  Wie funktioniert CRAAAZY CLICKER™®©?
+  - Was ist CRAAAZY CLICKER™®©?
+  - Wie funktioniert CRAAAZY CLICKER™®©?
 
 
 ## Was ist CRAAAZY CLICKER™®©?
