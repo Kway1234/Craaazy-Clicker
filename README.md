@@ -13,7 +13,7 @@
 
 ## Wie funktioniert CRAAAZY CLICKER™®©?
 
-  Man clickt und dann bekomt man so punkte und so
+  Man clickt und dann bekommt man so punkte und so
 
 mehr kommt noch bald
 und bitte kein code klauen oder virus machen oder sowas
